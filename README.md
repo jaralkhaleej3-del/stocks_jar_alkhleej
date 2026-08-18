@@ -1,1 +1,0 @@
-# stocks_jar_alkhleej
